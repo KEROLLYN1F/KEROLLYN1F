@@ -10,4 +10,4 @@ Você pode entrar em contato comigo 📫
 00001127734891sp@al.educacao.sp.gov.br
 
 @kerollyn
-![](https://tenor.com/pt-BR/view/love-forever-cute-penguin-hi-hello-gif-17426778716212929693)
+![](https://media1.tenor.com/m/8dha6U81pJ0AAAAC/love-forever-cute.gif)
